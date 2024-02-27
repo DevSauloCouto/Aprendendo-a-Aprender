@@ -20,7 +20,7 @@ Aprender uma coisa difícil pode levar tempo, por isso precisamos trabalhar um p
 
 ### O que é aprendizagem?
 
-Aprendizagem é o processo pelo qual as competências, habilidades, conhecimentos, comportamento ou valores são adquiridos ou modificados, como resultado de estudo, experiência, formação, raciocínio e observação.  
+Aprendizagem é o processo pelo qual as competências, habilidades, conhecimentos, comportamento ou valores são adquiridos ou modificados, como resultado de estudo, experiência, formação, raciocínio e observação.
 
 # Adiamento, Memória e Sono
 
@@ -89,3 +89,135 @@ Sonhar com o que está a estudar pode aumentar substancialmente sua capacidade p
 4. Para estimular e aprimorar a criatividade é essencial estar em um ambiente criativo onde tenha pessoas criativas. Discutir, apresentar, explicar suas ideias para outras pessoas é um bom estímulo para aumento da criatividade.
 5. O sucesso não vem necessariamente por ser inteligente. Muito do sucesso da vida está na paixão e persistência.
 6. Sempre observe algo com novos olhos, novas perspectivas. Isso ajuda a compreendermos por outros lados diversos conceitos existentes.
+
+## Entrevista com Dr. Robert Bilder Sobre Criatividade e Resolução de Problemas
+
+1. Podemos distinguir entre as coisas que são criadas para o mundo, que podem não ser criativas em relação a tudo que já foi feito antes. Mas se pensarmos sobre o que tem sido feito que é único pra você, algo novo pra você, e que tem valor pra você, então isso satisfaz o critério da criatividade. E é importante para seu cérebro fazê-lo, para poder ir atrás de outros problemas criativos.
+2. Lidar com críticas. Pela repetição da experiência que alguém aprende a lidar melhor com aquilo. Adote a mesma curiosidade sobre suas próprias falhas e dificuldades para enxergar melhor o problema compreendendo todo o escopo do problema que você aplicaria a outros e para qualquer outro problema.
+3. Somente há mudanças quando você passa por dificuldades. Então se quer obter progressos, é necessário passar por algum grau de desconforto. Mudança física no cérebro precisa envolver algum trabalho, e este trabalho precisa envolver dificuldades.
+4. Nossos vários modelos de personalidade, ou temperamento de caráter, se resumem a cinco fatores, para ser mais fácil de lembrar é usado o acrônimo OCEAN - Abertura (Open), Consciência (Conscience), Extroversão (Extroversion), Agradabilidade, Neurotismo (Neurotism).
+Agora que nós olhamos para as características das pessoas e quando tentam relatar as características da sua personalidade, ao nível da realização criativa, nós encontramos duas correlações - 
+1. Abertura para uma nova experiência é associado com uma ótima conquista   
+2. Capacidade de concordar, mas esta relação é negativa. Isto significa que pessoas que concordam menos ou discordam mais, tendem a mostrar maiores conquistas criativas. Aqueles que tendem a desafiar o estado atual, desafiam modelos, e não acredita nas coisas só porque outras pessoas disseram assim. Eu acho que estas pessoas tem mais probabilidade de serem criativos.
+5. Pessoas tem diferentes graus de dominância de aprendizado, sejam palavras (verbais) ou imagens (visuais). As palavras podem ser interessantes, mas quando não entender muito bem do conceito, visualize graficamente em sua mente, tente imaginar com imagens. Outra coisa que é recomendado para melhorar a criatividade é o exercício de poderes dos dez, este exercício ajuda a olharmos para um problema em diferentes perspectivas, e assim conseguimos achar uma ideia melhor do escopo do problema.
+
+## **Entrevista com a Treinadora de Escrita Daphne Gray-Grant**
+
+- Use o modo difuso (como ela também chama - modo criativo) através da técnica de mapeamento mental. Seguindo a uma metáfora: “suponha que existam duas pessoas distintas e colocamos essas pessoas em um carro, onde só uma pode dirigir. Então se a parte que tem uma cabeça crítica (Modo Focado) estiver dirigindo a sua parte difusa estará dormindo no banco de trás. Só que normalmente não é isso que queremos que aconteça, o que queremos é que a parte Difusa esteja ativa e acordada dirigindo o carro, enquanto você está realizando alguma tarefa”.
+    
+    No processo do mapeamento mental pegamos uma folha e a colocamos de lado, isso ajuda a liberar nosso cérebro, é como se ele dissesse “posso ir em qualquer direção”. As vezes quando estamos realizando tarefas, ou resolvendo problemas, precisamos ser criativos, pensar em coisas, criar novas conexões mentais. Para isso, devemos utilizar o Modo Difuso. Para entrar em Modo Difuso, pegamos a folha na horizontal e colocamos o tópico no centro da página do problema que queremos resolver e em seguida “vomite” as ideias que surgirem em sua cabeça no papel, ligando os tópicos relacionados. Nesse momento não devemos analisar as ideias, apenas jogá-las no papel.
+    
+    Para estudantes universitários a forma é um pouco diferente porque é pouco provável que você irá entrevistar uma porção de gente. É mais provável que você precise ler uma porção de livros, mas os mesmos princípios se aplicam. Se há alguma coisa que é muito interessante e importante e parte integral da sua pesquisa muito provavelmente você vai lembrar. As coisas que são mais importantes vão surgir no topo da sua memória. Você vai se lembrar delas e pode fazer o mapa mental.
+    
+    Outra dica importante é sabermos lidar com nossa voz interior enquanto estamos jogando as ideias no papel, e não deixar que ela nos atrapalhe no processo de geração de ideias. 
+    
+
+## Entrevista Com “Benny o Poliglota Irlandês” Sobre Aprender Idiomas
+
+- Saiba cometer erros no seu processo de aprendizado. Os erros não irão condenar o seu aprendizado, e sim te ajudar a evoluir seus conhecimentos. Ninguém te julgará por cometer um erro se você estiver iniciando. Apenas erre, identifique e corrija-o.
+- Motivadores: não queira aprender idiomas para se exibir ou só pelo simples fato de que as pessoas irão te achar mais inteligente ou algo do tipo. Para realmente ter um bom aprendizado e de fato evoluir temos que ter paixão e vontade de aprender o idioma.
+- Profecias Autorrealizáveis: “se você pensa que pode ou que não pode, você está certo.” Quer aprender algo? Acredite que pode, entre em ação e obterá progresso.
+- Desafios: ninguém possui vida fácil no mundo do aprendizado, não fique pensando na facilidade dos outros. Foque no seu processo, enfrente os desafios e supere-os. Evite criar desculpas para fazer algo, contorne-as e aja.
+- Não desista, se você não for bem sucedido, tente, tente e tente de novo. Se uma técnica de estudo não estiver te retornando aprendizados, explora outra técnica ou outra abordagem de estudos.
+- Tenha um tempo de descanso, não fique intensivamente por um longo período de tempo estudando, vai chegar um momento que isso te tornará inefeciente. Descanse sua mente, dê a possibilidade de descanso para ela e cuide da sua mente.
+
+# Associação em Blocos (Chunking)
+
+## O que é?
+
+O que é um bloco em memória? Na primeira vez que vemos um conceito novo, às vezes ele não faz sentido, assim como em um quebra-cabeça misturado. 
+
+Associar em blocos é o pulo mental que ajuda a unir pedaços de informações através do significado.
+
+A nova lógica completa torna o bloco mais fácil de lembrar, e também torna mais fácil encaixar o bloco em uma visão maior do que está aprendendo.
+
+Apenas decorando um fato sem entendimento ou contexto não te ajuda a entender como realmente é ou como o conceito se encaixa com outros conceitos que está aprendendo.
+
+Focar sua atenção de forma a ligar partes do cérebro conectando ideias conjuntas é uma parte importante do modo focado de aprendizagem. É também muitas vezes o que ajuda você a iniciar a criação de um bloco de memória.
+
+Blocos de memória são partes de informações, neurocientificamente falando, unidos através de significado ou uso. Você pode pegar as letras P, O, P e uni-las em um bloco conceitual fácil de lembrar, a palavra pop. É como converter um pesado arquivo de computador em um arquivo ZIP. Debaixo desse único bloco pop existe uma sinfonia de neurônios que aprenderam a cantar em sintonia uns com os outros, a atividade neural complexa que une nossa simplificação abstrata de blocos de pensamento, mesmo se esses pensamentos pertencem a acrônimos, ideias ou conceitos eles são a base de grande parte da ciência, literatura e arte.
+
+Um dos primeiros passos para ganhar experiência em tópicos acadêmicos é criar blocos de memória conceituais, saltos mentais que unem pedaços dispersos de informações através de significado.
+
+O conceito de blocos neurais também se aplica para esportes, música, dança, entre outros.
+
+Basicamente, um bloco de memória significa uma rede de neurônios que são usados para disparar juntos para que você possa ter um pensamento ou executar uma ação de forma suave e eficaz.
+
+Prática focada e repetição, a criação de fortes caminhos de memória, ajuda a criar blocos. O caminho para o conhecimento é construído pouco a pouco, pequenos blocos podem se tornar maior, e todo o conhecimento serve para sustentar as interpretações mais criativas ao passo que você gradualmente se torna um mestre no material.
+
+Organizar em blocos de memória ajuda seu cérebro a funcionar mais eficientemente. Uma vez que você coloca uma ideia, um conceito, ou uma ação em um bloco, você não precisa se lembrar de todos os pequenos detalhes subjacente. Você entende a ideia principal, o bloco, e isso é o suficiente.
+
+## Como Formar um Chunk
+
+### Parte 1
+
+Quando estamos a aprender um conceito ou assunto difícil, a representação neural deste pode ser considerada um bloco de memória bem grande. Como por exemplo, se você estiver aprendendo a tocar uma música no violão, você ouviria a música primeiro, talvez até assistiria alguém tocando a música. Pegando uma compreensão inicial do modelo que você quer dominar por si mesmo é parecido para a maioria dos assuntos ou habilidades.
+
+Frequentemente você tem que pegar pequenas partes da música, que se tornam neuro mini blocos de memória, na qual mais tarde irão se juntar e formar grandes blocos de memória. Por exemplo, ao longo de vários dias, você pode aprender a colocar suavemente passagens musicais em um violão, e quando você tiver dominado estas passagens, você poderia juntá-las com outras passagens que você aprendeu e gradualmente colocando todas juntas. Então você pode tocar a música.
+
+Os melhores blocos são aqueles que estão bem enraizados, que você nem mesmo tem que conscientemente pensar em conectar os padrões neurais juntos. Isso, na verdade, é o objetivo de fazer e ter ideias, movimentos ou reações complexas em um único bloco.
+
+Aprender matemática e ciência requer a mesma abordagem. Quando você está aprendendo novos assuntos de matemática e ciência, muitas vezes te dão como exemplos problemas com soluções trabalhosas. Isso acontece porque quando você está tentando primeiro entender como trabalhar em um problema, você tem uma carga cognitiva pesada. Então isso te ajuda a começar com um trabalho através do exemplo. A maior parte dos detalhes da solução trabalhosa estão bem aí, e seu trabalho é simplesmente descobrir por que os passos são do jeito que são. Eles podem ajudá-lo a ver as principais características e sublinhar os princípios de um problema.
+
+Uma preocupação sobre o uso de exemplos trabalhosos em matemática e ciências para ajudá-lo a começar a formar blocos, é que isso pode ser bem fácil para focar no porquê de uma etapa individual funcionar e a conexão entre as etapas não. Ou seja, no porquê essa etapa em particular é a próxima coisa que você deve fazer.
+
+### Parte 2
+
+O primeiro passo no processo de associar blocos de memória é simplesmente focar toda a sua atenção na informação que você quer processar em blocos. Veja bem, seu cérebro precisa estar realmente focado, se não estiver acarretará em dificuldades em criar blocos de memória. 
+
+Quando começamos a aprender algo, estamos criando novos padrões neurais e conectando estes padrões com outro padrões já preexistentes que estão espalhados por muitas áreas do cérebro.
+
+O segundo passo no processo de associar blocos de memória é entender a ideia básica daquilo que você está tentando criar o bloco de memória. Os estudantes podem frequentemente sintetizar a essência de um assunto, isto é, descobrir a ideia ou ideias principais. Ou ao menos, compreender as ideias, se eles permitirem que o modo focado e o modo difuso de pensamento se revezem para ajudar a descobrir o que está acontecendo. O entendimento é como uma supercola que ajuda a manter traços subjacentes de memória juntos, isto cria extensos traços mais abrangentes que podem ligar-se a outros traços de memória.
+
+É importante perceber que somente entendendo como um problema foi resolvido, por exemplo não necessariamente constrói um bloco de memória que você facilmente pode se lembrar mais tarde. Isto é parte do porquê de você entender uma ideia quando um professor ensina na sala de aula, mas se você não revisar logo após a aula que você assistiu pode ficar incompreensível na hora de estudar para a prova.
+
+Em Matemática e disciplinas científicas relacionadas, é importante você fechar o livro e testar-se em simulados, para saber se você consegue resolver o problema que você acha que entendeu. Isto vai acelerar sua aprendizagem nesta etapa. A primeira vez que você realmente entende alguma coisa é no momento em que você realmente o pratica sozinho. E isto se aplica a muitas disciplinas. 
+
+Somente fazendo você mesmo é que ajuda a criar os padrões neurais que constituem a base de verdadeiro domínio do assunto.
+
+O terceiro passo no processo de associar memórias em bloco é conhecer o contexto, assim você ver não somente como, mas também quando usar este bloco de memória. Por contexto, entendemos ir além do problema inicial e enxergar mais longe, repetindo e praticando problemas relacionados e não relacionados. Você verá não somente quando usar um bloco de memória, mas quando não usá-lo também. Isto ajuda a ver como o novo bloco de memória criado se encaixa no contexto geral.
+
+A prática ajuda você a ampliar a rede de neurônios que está conectada aos seus blocos de memória, garantindo que não seja somente sólida, mas também acessível por muitos diferentes caminhos.
+
+Aprender pode acontecer de duas maneiras: 
+
+1. De baixo para cima - há um processo de associar em blocos de memória em que prática e repetição pode ajudar você a construir e reforçar cada bloco de memória. Você pode facilmente acessá-lo sempre que precisar.
+2. De cima para baixo - tem uma visão geral que permitirá você ver o que você está aprendendo e onde ele melhor se encaixa.
+
+Os dois processos são vitais em ganhar domínio sobre o assunto. 
+
+O contexto é onde o processo de baixo para cima e de cima para baixo se encontram. Para ficar mais claro, o processo de associar memórias em bloco pode implicar na aprendizagem de como usar certa técnica para resolver problemas. O contexto significa aprender quando usar uma técnica ao invés de outra.
+
+Folheando rapidamente um capítulo de um livro, antes mesmo de você começar a estudá-lo, olhando de relance para as figuras, e para os subtítulos podem permitir que você tenha uma boa noção do panorama geral do assunto. 
+
+Estes tipos de atividades podem ajudar você a saber onde colocar estes blocos de memória que você está construindo, e ainda como estes blocos relacionam-se um com o outro.
+
+Resumindo, blocos de memória são melhor construídos com a sua atenção focada, com o entendimento da ideia básica, e com a prática para ajudar você a dominar o assunto e ter uma boa noção do panorama geral do assunto. Estes são os 3 passos básicos para construir blocos de memória e encaixá-los bem em um maior panorama global dos conceitos que você está aprendendo.
+
+## Ilusões de Competência
+
+Vamos apresentar algumas ideias essenciais para levar nossa aprendizagem para o caminho certo, como, a importância de recordar, ilusões de competência na aprendizagem, minitestes e o valor do cometer erros.
+
+Uma maneira muito produtiva de aprender um determinado assunto, conceito, matéria, livro é usando a simples técnica de **Recordar**. Depois de realizar uma leitura, simplesmente olhe para outro lado e veja o que consegue lembrar da leitura que acabou de fazer.
+
+Essa abordagem faz com que os estudantes aprendam muito a um nível muito profundo do que usando outras abordagens. 
+
+O processo de recuperação do conhecimento, melhora a aprendizagem profunda, e ajuda-nos a começar a formar blocos. É quase como se o processo de recordar ajudasse a construir pequenos ganchos neurais, onde podemos pendurar nosso pensamento.
+
+Essa técnica de leitura e recordação pode não ser a melhor forma de aprender, muitas vezes, mapas conceituais desenhando diagramas que mostram a relação entre os conceitos seria uma melhor abordagem. Mas se você está tentando construir ligações entre blocos, antes que os blocos básicos estejam cravados no cérebro, também não funciona. É como tentar aprender estratégias avançadas de xadrez, sem mesmo antes saber os conceitos básicos sobre como as peças se movimentam.  
+
+Usando o Recordar, a recuperação mental das ideias chave, em vez de releitura passiva, tornará o seu tempo de estudo mais focado e eficaz. A única altura em que reler textos parece eficaz, é quando se deixar passar tempo entre as leituras, e torna-se mais num exercício de repetição espaçada.
+
+Existem mais ou menos quatro espaços na sua memória de trabalho. Quando estamos aprendendo pela primeira vez como compreender um conceito ou uma técnica para resolver um problema, toda nossa memória de trabalho está envolvida nesse processo. Como se tivesse uma mistura louca de ligações entre as quatro aberturas da memória de trabalho. Conforme você começa a transformar o conceito em um bloco, sentirá que se liga com mais facilidade na sua mente. Uma vez que o conceito esteja em bloco, ocupa apenas uma abertura na memória de trabalho. Torna-se simultaneamente, um cordão suave que é fácil de seguir, e de usar para fazer novas ligações. O resto da sua memória de trabalho é deixada limpa. Este cordão pendente de matéria em bloco aumentou, num certo sentido, a quantidade de informação disponível na sua memória de trabalho. É como se uma abertura na memória de trabalho fosse um hiperlink que tenha sido ligado a uma grande e fantástica página web.
+
+**RESUMIR TUDO ISSO ABAIXO:**
+
+Agora, compreende porque é que é a chave, que é aquele que resolve o problema ou domina o conceito. Não quem quer que tenha escrito a solução, ou livro, em qualquer assunto que você esteja estudando. Se apenas olhar para a solução, por exemplo, então diz a si próprio: "Oh, sim, vejo porque fizeram isso!" Então a solução não é realmente sua. Não fez quase nada para unir esses conceitos no seu próprio circuito neural subjacente. Olhar apenas para uma solução, e pensar que realmente sabe, é uma das ilusões mais comuns de competência em aprendizagem. A informação tem que persistir na sua memória se quer dominar a matéria suficientemente bem, para ter bons resultados nos testes, e para pensar criativamente sobre ela. Numa coisa relacionada, pode ficar surpreendido ao aprender que realçar ou sublinhar deve ser feito com muito cuidado. De outra forma pode ser não apenas ineficaz como enganador. É como se, fazendo muitos movimentos com a mão possa enganá-lo a pensar que colocou o conceito no cérebro. E se marca o texto tente procurar as ideias principais, antes de fazer quaisquer marcas. E tente manter o sublinhado e o realce no mínimo. Uma frase ou menos por parágrafo. Por outro lado palavras ou notas, numa margem que sintetizam conceitos chave, é uma ideia muito boa.
+
+Jeff Karpicke, o mesmo investigador que fez um trabalho tão importante relacionado com o recordar, pesquisou um tópico associado. Ilusões de competência no aprendizado. A razão porque os alunos gostam de continuar a reler as suas notas ou o livro de textos, é que quando têm o livro ou o Google aberto mesmo à sua frente, dá-lhes a ilusão que a matéria está também nos seus cérebros. Mas não está, porque pode ser mais fácil olhar para o livro em vez de relembrar, os alunos persistem nas suas ilusões estudando de uma forma que simplesmente não é muito eficaz.
+
+Este é um lembrete que, apenas, querer aprender a matéria, e passar muito tempo com ela, não garante que de fato a aprenda. Uma forma super útil para ter a certeza de que está aprendendo e não enganando a si próprio com ilusões de competência, é testar-se no que quer que seja que está aprendendo.
+
+Num certo sentido, é justamente o que o recordar faz. Permitindo-lhe ver se realmente apreendeu uma ideia. Se se enganar no que está fazendo, é de fato uma coisa muito boa. Desejar tentar não repetir os seus erros, claro, mas os erros são muito valiosos nos seus pequenos auto testes antes dos riscos elevados dos testes reais. Porque lhe permitem reparar e pensar nos enganos, pouco a pouco os erros ajudam a corrigir o seu pensamento, de forma que você pode aprender melhor e fazer cada vez melhor.
+
+E como sabe agora, recordar é uma ferramenta poderosa. Mas aqui está outra dica: lembrar do material quando você está fora do seu local de estudo habitual também pode ajudá-lo a fortalecer sua compreensão da matéria. Você não percebe, quando está aprendendo algo novo, pode muitas vezes incluir pistas subliminares da sala e do espaço à sua volta, na período em que estava originalmente aprendendo a matéria. Isto pode afetá-lo quando faz testes, porque muitas vezes fazemos testes numa sala que é diferente daquela em que estudamos. Ao recordar e pensar sobre a matéria, quando está em vários espaços físicos, você se torna independente das pistas de qualquer lugar. Isso ajuda-o a evitar o problema da sala do teste ser diferente do local onde originalmente aprendeu o material.

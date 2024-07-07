@@ -221,3 +221,202 @@ Este é um lembrete que, apenas, querer aprender a matéria, e passar muito tem
 Num certo sentido, é justamente o que o recordar faz. Permitindo-lhe ver se realmente apreendeu uma ideia. Se se enganar no que está fazendo, é de fato uma coisa muito boa. Desejar tentar não repetir os seus erros, claro, mas os erros são muito valiosos nos seus pequenos auto testes antes dos riscos elevados dos testes reais. Porque lhe permitem reparar e pensar nos enganos, pouco a pouco os erros ajudam a corrigir o seu pensamento, de forma que você pode aprender melhor e fazer cada vez melhor.
 
 E como sabe agora, recordar é uma ferramenta poderosa. Mas aqui está outra dica: lembrar do material quando você está fora do seu local de estudo habitual também pode ajudá-lo a fortalecer sua compreensão da matéria. Você não percebe, quando está aprendendo algo novo, pode muitas vezes incluir pistas subliminares da sala e do espaço à sua volta, na período em que estava originalmente aprendendo a matéria. Isto pode afetá-lo quando faz testes, porque muitas vezes fazemos testes numa sala que é diferente daquela em que estudamos. Ao recordar e pensar sobre a matéria, quando está em vários espaços físicos, você se torna independente das pistas de qualquer lugar. Isso ajuda-o a evitar o problema da sala do teste ser diferente do local onde originalmente aprendeu o material.
+
+# Enxergando a Visão Geral
+
+## O que o Motiva?
+
+É difícil aprender algo quando não lhe interessa, mas quando algo te interesse, aprender se torna fácil, por que?
+
+A maior parte dos neurônios no córtex transportam informação sobre o que está acontecendo ao seu redor e sobre o que você está fazendo.
+
+O cérebro possui um conjunto de sistemas de neuro moduladores de projeção difusa, que transportam informação não apenas sobre o conteúdo da experiência, mas a sua importância e valor para o seu futuro. 
+
+Os neuro moduladores são substâncias químicas que influenciam a forma como os neurônios respondem a outros neurônios.
+
+Neuro moduladores tem um impacto profundo no nosso inconsciente.
+
+Veremos três deles: **acetilcolina, dopamina, serotonina.**
+
+1. Acetilcolina - os neurônios de acetilcolina forma ligações neuromodulatórias com o córtex que são particularmente importantes para a aprendizagem focada, quando está a prestar maior atenção. Esses neurônios projetam-se amplamente e ativam circuitos que controlam a plasticidade sináptica, conduzindo a uma nova memória a longo prazo.
+2. Dopamina - a nossa motivação é controlada por essa substância química, a qual se encontra num pequeno conjunto de neurônios no nosso tronco cerebral. Estes neurônios são parte de um grande sistema do cérebro que controla a aprendizagem recompensada, e em particular no gânglios basais que estão localizados na região verde acima dos neurônios de dopamina e abaixo do córtex no topo do cérebro. 
+    
+    A dopamina é libertada por estes neurônios quando é recebida uma gratificação inesperada.
+    
+    Os sinais da dopamina se projetam em larga escala e tem um efeito muito poderoso no aprendizado. E isto é algo que também afeta a tomada de decisões, e até mesmo o valor das entradas sensoriais.
+    
+    A dopamina está encarregada de prever recompensas futuras e imediatas. Isto pode motivá-lo a fazer alguma coisa que pode não ser gratificante no momento, mas que levará a uma gratificação melhor no futuro.
+    
+    A perda de neurônios de dopamina conduz a uma falta de motivação. E uma coisa chamada anedonia, que é uma perda de interesse por coisas que já lhe deram prazer.
+    
+    Os neurônios de dopamina são parte da parte inconsciente do seu cérebro.
+    
+3. Serotonina - afeta fortemente a sua vida social. O nível de serotonina também está ligado aos comportamentos de risco.
+    
+    As suas emoções afetam fortemente a sua aprendizagem. Investigações recentes provaram que as emoções estão interligadas com a percepção e com a atenção e interagem com a aprendizagem e a memória. 
+    
+    A amígdala, uma estrutura em forma de amêndoa, aninhada na base do cérebro, é um dos centros mais importantes onde a cognição e a emoção são integradas de forma eficaz.
+    
+    A amígdala é parte do sistema límbico que, conjuntamente com o hipocampo está envolvida no processamento da memória e tomada de decisão assim como na regulação das reações emocionais. 
+    
+
+## O Valor de uma Biblioteca de Blocos de Memória
+
+A habilidade de combinar blocos de memória de modos novos e originais é a base de muitas inovações históricas.
+
+O que as pessoas fazem para aumentar seus conhecimentos e se especializar, é aumentar gradualmente o número de blocos de memória em sua mente. Valiosos blocos de informações que podem se juntar de modos novos e criativos. 
+
+Quanto maior e mais bem treinada for nossa biblioteca mental de blocos de memória, mais facilmente poderemos resolver problemas e encontrar soluções.
+
+Não é só de formar blocos de memória que precisamos para desenvolver a flexibilidade criativa no aprendizado, mas este é um componente importante.
+
+Os blocos de memória também podem ajudá-lo a compreender novos conceitos. Porque, quando você constrói um bloco de memória, descobre que ele pode ser relacionado a blocos de memória semelhantes, não só naquele campo de estudo, mas em outros bem distintos. Essa ideia chama-se **transferência**.
+
+Um bloco de memória é um modo de comprimir informações de maneira bem mais compacta.
+
+Se você tiver uma biblioteca de conceitos e soluções internalizados como padrões de blocos de memória, pode considerá-la uma coleção, ou uma biblioteca de padrões neurais. Quanto tentar entender alguma coisa, se possuir uma boa biblioteca desses blocos de memória, poderá ir mais facilmente para a solução certa ouvindo os sussurros do seu modo difuso, metaforicamente falando. Seu modo difuso pode ajudá-lo a ligar dois ou mais blocos de memória de novas maneiras para resolver problemas novos.
+
+Ao construir uma biblioteca de blocos de memória, você está treinando seu cérebro para reconhecer não só um conceito específico, mas vários tipos e classes de conceitos, para poder saber automaticamente como resolver com rapidez ou lidar com o que quer que apareça.
+
+Há dois modos de entender alguma coisa ou resolver problemas:
+
+1. Raciocínio Sequencial - cada pequeno passo conduz deliberadamente a uma solução, requer o modo focado.
+2. Intuição Holística - requer o modo difuso criativo que liga vários pensamentos do modo focado aparentemente distintos. Problemas e conceitos mais difíceis são entendidos graças à intuição.
+
+O jeito meio aleatório como o modo difuso faz conexões significa que as soluções que ele fornece devem ser conferidas cuidadosamente usando o modo focado. Nem todas as percepções intuitivas são corretas.
+
+## Superaprendizagem, Engasgo, Efeito Einstellung e Intercalação
+
+### Superaprendizagem
+
+Continuar estudando ou praticando depois de se dominar o que se consegue na sessão de estudos chama-se **superaprendizagem**.
+
+A superaprendizagem pode ser importante se você conseguir desenvolver o automatismo para executar ou resolver algum problema. Esse automatismo pode ser útil em um momento de nervosismo.
+
+Deve-se ter muito cuidado com a superaprendizagem por repetição durante uma única sessão de estudos. Pesquisas demonstram que essa prática pode ser um desperdício de tempo valioso de aprendizagem. 
+
+Quando você consegue captar a ideia chave, continuar a martelá-la na mesma sessão, não vai fortalecer as conexões de memória a longo prazo que você quer fortalecer. O recomendado é recorrer a sessões de estudos posteriores para repetir o que você está tentando aprender. Isso é muitas vezes valioso, pois ajuda a fortalecer e aprofundar os seus padrões neurais organizados. Mas cuidado, repetir algo que já domina perfeitamente é fácil e pode dar a ilusão de competência de que já domina a matéria toda, quando na verdade domina apenas a parte mais fácil. Para resolver isso, existe a Prática Deliberada, que consiste em se concentrar na parte da matéria em que você tem mais dificuldade. 
+
+### Efeito Einstellung
+
+Nesse efeito, seu pensamento inicial ou uma ideia que você já tinha em mente ou padrão neural que você tenha desenvolvido e fortalecido, pode evitar que uma ideia melhor ou solução seja encontrada. 
+
+Fazendo uma analogia, suponhamos que seu pensamento inicial esteja na parte de cima do cérebro, mas o padrão do pensamento da solução está na parte de baixo. Os padrões previamente construídos (pensamento inicial) podem formar uma espécie de fosso que evita que você salte para o novo local onde a solução pode ser encontrada.
+
+A palavra Einstellung significa instalação, podemos relacionar com “instalação de obstáculo”.
+
+### Intercalação
+
+Compreender como conseguir soluções reais é importante na aprendizagem e na vida. 
+
+Dominar assunto novo significa não só aprender os blocos básicos, como também aprender a como selecionar e utilizar blocos diferentes. 
+
+A melhor forma para se aprender isto é: saltar para trás e para frente entre problemas e soluções que requerem diferentes técnicas ou estratégias. Isso se chama **intercalação**.
+
+Uma vez que você entende uma ideia básica sobre uma técnica durante a sessão de estudos, comece a intercalar a prática com problemas de diferentes tipos ou diferentes tipos de abordagem, conceitos, procedimentos.
+
+Faça o que puder para misturar a sua aprendizagem. Seu cérebro deve saber que apenas saber como usar um conceito específico, abordagem ou técnica de resolução de problemas não é o suficiente, você também precisa saber quando utilizá-los.
+
+Intercalação é extremamente importante para começar a construir a flexibilidade e criatividade. É a maneira que você abandona o mundo da prática e repetição e começa a pensar de forma independente.
+
+Quando você intercala assunto ou disciplina, você começa a desenvolver o seu poder de criatividade nessa disciplina. Quando você intercala entre diversos assuntos ou disciplinas você consegue mais facilmente fazer novas conexões interessantes entre blocos de diferentes campos, o que pode aumentar a sua criatividade ainda mais.
+
+Desenvolver conhecimento em vários campos significa que você pode trazer novas ideias de um campo para o outro. Por outro lado, se você desenvolve conhecimento em uma só disciplina, você pode até conhecê-la profundamente, porém, você pode tornar-se mais profundamente encurralado na sua forma de pensar e não ser capaz de lidar com novas ideias. 
+
+## Entrevista Com Dr. Norman Fortenberry - Aprendendo no MIT
+
+Nessa entrevista pude absorver as principais ideias do entrevistado. 
+
+O entrevistado citou que você deve fazer parte de um time. Se você não tem um time, você acha um time. Se você é um time, você maximiza o time. Você deve ter certeza que os membros do time são bastante sérios com seus estudos também.
+
+O entrevistado também reforçou o momento onde devemos deixar por um curto período de tempo os estudos e procurar tarefas que nos faça relaxar a mente. Ele diz que é bastante importante fazer uma pausa.
+
+O entrevistado cita também que umas das melhores formas de se aprender é escrever a mão o que está aprendendo, de forma que você exercite os músculos da memória, repetindo de volta para você mesmo. Veja, diga, soletre. O ato mecânico de escrever ajuda você a internalizar aquele material, assim como voltar e ler notas novamente, isso o ajuda a internalizar aquele material.
+
+Novamente, com grupo de estudos e desafiando uns aos outros, por que o que você pensa que sabe, você descobre quando você tenta explicar o assunto para alguém, este é o porquê ensinar é uma das melhores maneiras de aprender. Mas mesmo se você não está completamente seguro para ensinar alguém, apenas em discutir o assunto com alguns companheiros e colegas, OK, isto é o que eu acho que eu sei. E eles desafiam você. OK, bem, isto não é o que eu achava que pensava, mas deixe-me explicar. E eles irão, ou você irá validar o que você pensou, ou você vai encontrar uma falácia no que você pensou. E eles fazem a mesma coisa. E então vocês se ajudam uns aos outros explicando o material uns aos outros. Se você apenas escreve, sim você conseguiu. Bem, você pode não ter conseguido, ou você pode ter errado. E então você deve tirar um tempo para explicar, ensinar, qualquer coisa para alguém como uma maneira de ter certeza que você, de fato, entendeu o que você pensava, em termos do seu aprendizado. Eu acho que a aprendizagem ativa como esta, realmente tentar entender e usar informação que está dentro da sua própria mente, esta é a melhor maneira de saber que você realmente entendeu dentro da sua própria mente.
+
+# Procrastinação (Adiamento)
+
+## Desarmando o Adiamento - É Mais Fácil e Valioso do que Pensa
+
+Uma ferramenta útil para procrastinação é a técnica POMODORO que consiste em um foco ininterrupto em uma atividade por um determinado período de tempo (geralmente 25 minutos) e após a sessão, uma pequena pausa para relaxar.
+
+Nós geralmente procrastinamos com aquilo que nos faz se sentir desconfortáveis.
+
+Você deve começar a aprendizagem cedo, espaçando ela, isso o fará aprender melhor.
+
+A força de vontade é difícil de conseguir, portanto, não desperdice-a forçando a eliminação da procrastinação, exceto se for absolutamente necessário.
+
+Quando estamos fazendo algo desagradável, nosso cérebro busca deslocar a atenção para algo mais agradável, isso fará você se sentir melhor temporariamente, porém os efeitos a longo prazo podem ser totalmente desagradáveis.
+
+Quando se adia o estudo, torna-se mais difícil/doloroso pensar em estudar.
+
+A procrastinação pode ser um mau hábito, hábito esse que influencia em muitas áreas importantes da sua vida.
+
+A procrastinação é semelhante ao vício, ambos compartilham a mesma característica: o alívio temporário, o conforto mental.
+
+## Zombies Por Toda Parte
+
+A associação em blocos está relacionado à hábitos. Hábitos são uma economia de energia para nós, e nos permite liberar nossa mente para outros tipos de atividades. O ponto do hábito acontece quando você não precisa pensar em se concentrar sobre o que está fazendo enquanto está fazendo uma atividade habitual.
+
+Hábitos podem ser bons e ruins. Podemos pensar nos hábitos tendo 4 partes:
+
+1. Sugestão:  o gatilho que ativa você no modo zumbi. A sugestão é algo simples como ver o primeiro item na lista de tarefas, ela não é útil, nem nociva. 
+2. Rotina: este é o modo zumbi. A resposta habitual da rotina de seu cérebro é utilizado quando recebe a sugestão. Respostas zumbis podem ser úteis, inofensivas, ou as vezes prejudiciais.
+3. Recompensa: cada hábito se desenvolve e é contínuo porque nos recompensa, nos dá imediatamente uma pequena sensação de prazer. Procrastinação é um hábito fácil de desenvolver porque a recompensa move o foco de sua mente para algo mais prazeroso, isso acontece rápido e facilmente. Encontrar maneiras de recompensar bons hábitos de estudo são importantes para escapar da procrastinação.
+4. Convicção: hábitos tem poder porque você acredita neles. Para mudar um hábito, você precisará mudar sua convicção fundamental.
+
+## **Surf é a Onda: Processo Versus Produto**
+
+Um dos melhores modos para ser efetivo durante seus estudos é usar ferramentas mentais e truques que possam inspirar e motivar você.
+
+Há um caminho útil para você que está evitando fazer coisas só pelo fato delas serem desagradáveis: esse caminho se chama “aprender a focar no processo, não no produto”. 
+
+Processo significa, o fluxo de tempo e os hábitos e ações associados com esse fluxo temporal, como por exemplo, “Vou passar 20 minutos trabalhando”.
+
+Produto é um resultado, por exemplo, de uma tarefa de casa que você tem que terminar.
+
+Para evitar a procrastinação você deve evitar se concentrar no produto, ao invés disso, sua atenção deve estar na construção de processos. Processos se relacionam com hábitos simples, hábitos que lhe permitem fazer as tarefas desagradáveis que devem ser feitas.
+
+Uma das formas mais fáceis de focar no processo é focar em fazer um Pomodoro, uma sessão de trabalho cronometrada de 25 minutos, não em completar uma tarefa.
+
+É claro, preparar-se para que as distrações sejam mínimas também é uma boa ideia. Muitos estudantes crêem que um lugar quieto ou headphones com cancelamento de ruído, se você puder pagar por eles, podem ser úteis quando estão tentando se concentrar. 
+
+## **Aproveitando os Zumbis para Ajudá-lo**
+
+O truque para anular um hábito é mudar a sua reação a uma sugestão.
+
+Primeiro, a sugestão. Reconheça o que faz você entrar no modo zumbi de procrastinação. As sugestões geralmente caem em uma das categorias seguintes: 
+
+- Localização
+- Tempo
+- Como se sente
+- Reações (ligado a outras pessoas ou ligado a algo que acaba de acontecer)
+
+Segundo, a rotina. Aí mora a reação, é onde você deve focar ativamente em reescrever seu velho hábito. A chave para reprogramar é ter um plano. Seu plano pode não funcionar perfeitamente de primeira, mas continue com ele. Se precisar faça ajustes no seu plano. Não tente alterar tudo de uma vez.
+
+Terceiro, a recompensa. Hábitos são poderosos porque criam desejos neurológicos. Ajuda adicionar uma nova recompensa se você quer superar seus desejos anteriores. Somente quando seu cérebro começa a esperar por essa recompensa que a reprogramação acontece permitindo a criação de novos hábitos.
+
+Quarto, a crença. A parte mais importante para mudar seu hábitos de procrastinação é acreditar que você consegue. 
+
+Parte do que pode lhe sustentar é desenvolver uma nova comunidade. Desenvolver uma cultura com amigos que pensam da mesma forma pode nos ajudar a lembrar dos valores que, em momentos de fraqueza, tendemos a esquecer. 
+
+## **Fazendo Malabarismo com a Vida e Aprendendo**
+
+Um bom jeito de você manter a perspectiva do que está tentando aprender e o resultado, é escrever uma lista de tarefas. Tente escrever essa lista na noite anterior, isto é benéfico. Pesquisas mostram que isso ajuda seu subconsciente a lidar com as tarefas da lista para que você possa achar a forma como completá-las.
+
+Se você não escreve suas tarefas, elas se escondem nos cantos dos 4 compartimentos da sua memória de trabalho, ocupando um espaço valioso na sua mente. Quando você faz a lista, isso libera espaço na sua memória de trabalho para resolução de problemas.
+
+Combinar outras tarefas com seu aprendizado, torna tudo mais agradável e mantém você longe de prolongadas e não saudáveis horas sentado. 
+
+Faça anotações no seu diário quanto ao que funciona e o que não funciona.
+
+Planejar o horário de término é tão importante quanto planejar o seu tempo de trabalho. Aqueles que se comprometem a manter um saudável tempo de diversão junto com seu trabalho duro, vão mais longe do que aqueles que correm sem parar. Como quer que sua vida esteja, tente encontrar um tempo de pausa. 
+
+Tente trabalhar na mais importante e mais desagradável tarefa primeiro.
+
+A dama da sorte favorece aqueles que tentam. Planejar bem é parte de tentar, mantenha seus olhos no seu objetivo e tente não ficar muito perturbado por obstáculos ocasionais.
+
+# Memória
+
+## **Mergulhando Fundo na Memória**
